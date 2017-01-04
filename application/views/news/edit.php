@@ -3,6 +3,7 @@
 <?php echo validation_errors(); ?>
 
 <?php echo form_open('news/edit/' . $news_item['slug']); ?>
+asdhsouiahsdaisdha sdiaso dpwqpda sdaghsdiu wqhw dqhakj dasdj 
     <input type="hidden" name="slug" class="form-control" value="<?=$news_item['slug']?>" /><br />
 
     <label for="title">Title</label>

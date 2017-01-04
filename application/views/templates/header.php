@@ -30,7 +30,7 @@ if (count($data['user'])!=0) {
         <span class="icon-bar"></span>
         <span class="icon-bar"></span>
       </button>
-      <a class="navbar-brand" href="#">News Kil</a>
+      <a class="navbar-brand" href="#">Diacak anjir</a>
     </div>
 
     <!-- Collect the nav links, forms, and other content for toggling -->
