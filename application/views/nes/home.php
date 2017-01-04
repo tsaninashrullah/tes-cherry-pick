@@ -7,6 +7,14 @@ tentunaskk asdaksd nkaskdakl; sdk as; ldasd kl;asd;l kasda nl;sdas lkd
 tentunaskk asdaksd nkaskdakl; sdk as; ldasd kl;asd;l kasda nl;sdas lkd
 tentunaskk asdaksd nkaskdakl; sdk as; ldasd kl;asd;l kasda nl;sdas lkd
 <h2>GANTENG</h2>
+asdjasdkjoqiw
+asdasdiojqw
+ddojasoijdas
+dasdjasdksa
+d
+tentunaskk asdaksd nkaskdakl; sdk as; ldasd kl;asd;l kasda nl;sdas lkd
+tentunaskk asdaksd nkaskdakl; sdk as; ldasd kl;asd;l kasda nl;sdas lkd
+tentunaskk asdaksd nkaskdakl; sdk as; ldasd kl;asd;l kasda nl;sdas lkd
 tentunaskk asdaksd nkaskdakl; sdk as; ldasd kl;asd;l kasda nl;sdas lkd
 tentunaskk asdaksd nkaskdakl; sdk as; ldasd kl;asd;l kasda nl;sdas lkd
 tentunaskk asdaksd nkaskdakl; sdk as; ldasd kl;asd;l kasda nl;sdas lkd
